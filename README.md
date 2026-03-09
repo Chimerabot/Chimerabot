@@ -5,3 +5,5 @@
 ▼  Just a few of my hobbies are cooking, climbing, writing, programming, and graphic design
 
 ▼  Check out [SUSHIDO](https://store.steampowered.com/app/2799460/SUSHIDO/) on Steam!
+
+▼  Note to self: take more breaks aaa
